@@ -22,7 +22,7 @@
 
 תגובות
 ---------------
-יתקבלו בברכה ב- gavishnoam@gmail.com
+יתקבלו בברכה ב- gavishnoam at gmail dot com
 
 
 
